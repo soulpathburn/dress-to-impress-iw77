@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with dress to impress advanced Script, the #1 Script. Includes custom skins and infinite resources for
 
 
 
